@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+* My name is Youssef Mamdouh Samir Iskandar Hanna
+*  Bachelor of enginnering &nbsp;&nbsp;&nbsp;&nbsp; Major : computer &nbsp;&nbsp;&nbsp; Minor : Communications
+   * Alexandria University
